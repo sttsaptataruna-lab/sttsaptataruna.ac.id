@@ -1,0 +1,2 @@
+# sttsaptataruna.ac.id
+Jurnal
